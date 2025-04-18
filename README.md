@@ -1,4 +1,4 @@
-# mohmedalfinprofile
+# Mohmed Alfin Maulana
 # 💫 About Me:
 I'm Currently Studying
 
